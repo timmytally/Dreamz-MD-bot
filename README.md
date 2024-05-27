@@ -12,7 +12,7 @@
 
 <p align="center">
 <a href="https://github.com/VajiraTech">
-    <img src="https://telegra.ph/file/03f1eccdcb525a5e1a6ad.jpg"  width="700px">
+    <img src="https://telegra.ph/file/2d4f1c80492b280adb82b.jpg"  width="700px">
 </a>
 <hr>
 
@@ -22,7 +22,7 @@
 
 ## Bot deploy in whatsapp biussness then not banned
 
-## Try Pairing code in to device then not comes session error https://wa.me/94719199757
+## Try Pairing code in to device then not comes session error https://wa.me/254750075469
 
 <b><details><summary>𝗦𝗢𝗖𝗜𝗔𝗟 𝗧𝗬𝗣𝗘𝗦</summary><br>
 
