@@ -28,19 +28,19 @@
 
 ## CONTACT OWNER
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://wa.me/254750075469)
+[![vajira](https://https://telegra.ph/file/2d4f1c80492b280adb82b.jpg)](https://wa.me/254750075469)
 
 ## JOIN SUPPORT GROUP
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://chat.whatsapp.com/Bm2gxqVQqLB9A7KfFHZw5M)
+[![vajira](https://telegra.ph/file/2d4f1c80492b280adb82b.jpg)](https://chat.whatsapp.com/Bm2gxqVQqLB9A7KfFHZw5M)
 
 ## MY WA CHANNEL
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://whatsapp.com/channel/0029VadExMQHwXb9GtsC1A24)
+[![vajira](https://telegra.ph/file/2d4f1c80492b280adb82b.jpg)](https://whatsapp.com/channel/0029VadExMQHwXb9GtsC1A24)
 
 ## MY YT CHANNEL
 
-[![Youtube](https://telegra.ph/file/eebe86c26e98ffeae39ea.jpg)](https://youtube.com/@lildreamzkartel?si=HMGi1rTjAaegMvE5) 
+[![Youtube](https://telegra.ph/file/2d4f1c80492b280adb82b.jpg)](https://youtube.com/@lildreamzkartel?si=HMGi1rTjAaegMvE5) 
 
 </details>
 
